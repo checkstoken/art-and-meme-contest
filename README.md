@@ -12,7 +12,7 @@ There will be two categories: Art and Meme. The top submissions in each category
 
 1. Choose the category in which you want to participate - Art or Meme.
 2. Create an original piece of art or a meme related to $CHECKS.
-3. Submit your creation by posting it in our designated contest submission thread. Make sure to label your submission with the hashtag #CHECKSArt or #CHECKSMeme depending on the category.
+3. Submit your creation by posting it as a reply: https://twitter.com/checkstoken/status/1662423561754275841 Make sure to label your submission with the hashtag #CHECKSArt or #CHECKSMeme depending on the category.
 4. Submissions are open for a week, so you have plenty of time to unleash your creativity!
 
 ## **Rules**
