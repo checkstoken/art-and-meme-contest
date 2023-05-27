@@ -1,3 +1,5 @@
+### $CHECKS TOKEN ART & MEME CONTEST ###
+
 Hello $CHECKS Community,
 
 We are excited to announce our first ever Art & Meme Contest! If you're a creative soul who loves art or enjoys making hilarious memes, this is the perfect opportunity for you.
